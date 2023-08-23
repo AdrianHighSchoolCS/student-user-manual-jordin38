@@ -1,5 +1,5 @@
 ## Challenges
-<p><b>I'm great at many things but I struggle with...</b></p> 
+<p><b>I'm great at many things but I struggle with...very rarely getting angry and then being mean to people at times</b></p> 
 <p>Things that will break my focus in the classroom:</p>
 <p>Things that frustrate me in the classroom:</p>
 <p>Things that annoy me about group work:</p>
