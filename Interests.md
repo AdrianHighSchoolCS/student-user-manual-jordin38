@@ -1,3 +1,3 @@
 ## Interests
-<p>Tell me something interesting:</p>
+<p>Tell me something interesting: i don't know really anyting interesting</p>
 <p>Share your favorite things:</p>
